@@ -1,3 +1,3 @@
 # Mbiy_CHAUPITREBryan-BACONTom
 
-Veuillez d'abord vous inscrire, puis suivre les lien
+Veuillez d'abord vous inscrire, puis suivre les liens .
